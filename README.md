@@ -1,1 +1,1 @@
-# lgnd
+# About LGND
